@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Uwucas
+- I’m interested in lots of things
+- I’m currently learning how to mod Ck2
